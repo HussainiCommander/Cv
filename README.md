@@ -1,5 +1,5 @@
 👑 MUHAMMAD FAISAL 🏆
-Islamic Scholar-Orator | Global Ethical Leader | Web3 Financial Architect | Global Chief of Deep Voice & Soul Architecture | AI Tester
+Islamic Scholar-Orator | Global Ethical Leader | Web3 Financial Expert | Global Chief of Deep Voice & Soul Architecture | AI Tester
 
 
 📞 +92 322 7269110 
